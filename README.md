@@ -1,0 +1,1 @@
+# zespol_Tadeusz_Zukovski_Daniel_Subatovic_Adam_Romasevsi_Radoslav_Manak
